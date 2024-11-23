@@ -20,7 +20,7 @@
 
 функционал:
 
-https://www.youtube.com/watch?v=PDGOWsa32os
+https://rutube.ru/video/dece05ae902b971084acedaacb83c802/
 
 промо ролик прокта:
 
